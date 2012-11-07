@@ -1,3 +1,3 @@
 mi repositorio
 
-Juan David Rengifo D
+Juan David Rengifo Diaz
